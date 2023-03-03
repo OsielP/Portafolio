@@ -1,2 +1,0 @@
-# Portafolio
-información profesional
